@@ -3,12 +3,12 @@ Soy Emanuel Voltolini y tengo 17 años. Vivo en Salta Capital con mis padres. Me
 Me gusta la música y también los videojuegos. En mi tiempo libre disfruto de la compañia de mis abuelos también práctico un poco de fútbol aunque solo lo hago por diversión no necesariamente como una competencia. Además me facinan los gatos (🐱) en mi casa podria decirse que tengo 6 porque me visitan los gatos de mis vecinos.
 
 Mis expectativas son: 
-🐶 llegar a terminar el 5 año
-🐶 estudiar alguna carrera por el momento esta en mis planes algo relacionado con la informatica y una vez terminada dicha carrera crezer profecionalmente
-🐶 buscar empleo para ayudar a mis padres
-🐶 Perfeccionar año a año para estar al mismo nivel que la nueva generación
-🐶 mantener una buena relación con mis compañeros en el trabajo
-🐶 A la hora de elegir un empleo tomar una buena decisión
+-🐶 llegar a terminar el 5 año
+-🐶 estudiar alguna carrera por el momento esta en mis planes algo relacionado con la informatica y una vez terminada dicha carrera crezer profecionalmente
+-🐶 buscar empleo para ayudar a mis padres
+-🐶 Perfeccionar año a año para estar al mismo nivel que la nueva generación
+-🐶 mantener una buena relación con mis compañeros en el trabajo
+-🐶 A la hora de elegir un empleo tomar una buena decisión
 
 ![](![WhatsApp Image 2024-06-09 at 23 00 18 (1)](https://github.com/EmanuelVoltolini/EmanuelVoltolini/assets/172198813/b7576e14-04ff-472e-8284-b961da3322c6)
 
