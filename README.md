@@ -4,17 +4,17 @@ Me gusta la música y también los videojuegos. En mi tiempo libre disfruto de l
 
 Mis expectativas son: 
 
--🐶 llegar a terminar el 5 año
+- 🐶 llegar a terminar el 5 año
 
--🐶 estudiar alguna carrera por el momento esta en mis planes algo relacionado con la informatica y una vez terminada dicha carrera crezer profecionalmente
+- 🐶 estudiar alguna carrera por el momento esta en mis planes algo relacionado con la informatica y una vez terminada dicha carrera crezer profecionalmente
 
--🐶 buscar empleo para ayudar a mis padres
+- 🐶 buscar empleo para ayudar a mis padres
 
--🐶 Perfeccionar año a año para estar al mismo nivel que la nueva generación
+- 🐶 Perfeccionar año a año para estar al mismo nivel que la nueva generación
 
--🐶 mantener una buena relación con mis compañeros en el trabajo
+- 🐶 mantener una buena relación con mis compañeros en el trabajo
 
--🐶 A la hora de elegir un empleo tomar una buena decisión
+- 🐶 A la hora de elegir un empleo tomar una buena decisión
 
 
 ![](![WhatsApp Image 2024-06-09 at 23 00 18 (1)](https://github.com/EmanuelVoltolini/EmanuelVoltolini/assets/172198813/b7576e14-04ff-472e-8284-b961da3322c6)
