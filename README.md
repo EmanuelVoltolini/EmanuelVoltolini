@@ -16,7 +16,7 @@ Mis expectativas son:
 
 - 🐶 A la hora de elegir un empleo tomar una buena decisión
 
-[pagina](https://www.google.com)
+[video random](https://youtube.com/shorts/sJBtC-fK0kk?feature=shared)
 
 ![Foto](https://github.com/EmanuelVoltolini/EmanuelVoltolini/assets/172198813/b7576e14-04ff-472e-8284-b961da3322c6)
 
